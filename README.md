@@ -23,7 +23,8 @@
 
 > **"Fake it untill you make it"**
 ## Вы можете найти меня в социальных сетях :)
-[ВК](https://vk.com/bluffingboy)
+[Instagram](https://www.instagram.com/bluffingboy/)
+[VK](https://vk.com/bluffingboy)
    
 
 
