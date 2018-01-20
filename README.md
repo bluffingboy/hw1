@@ -18,6 +18,7 @@
 * фотографирую на *полароид*
 ## Моя любимая цитата:
 > **"Life is too short to pretend you don't like catchy Taylor Swift's songs"**
+
 > **"Не бывает плохих наций, бывают плохие люди"**
    
 
