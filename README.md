@@ -22,7 +22,7 @@
 > **"Не бывает плохих наций, бывают плохие люди"**
 
 > **"Fake it untill you make it"**
-## Вы можете найти меня в социальных сетях :)
+## Мои социальные сети :)
 [instagram](https://www.instagram.com/bluffingboy/)
 
 [vk](https://vk.com/bluffingboy)
