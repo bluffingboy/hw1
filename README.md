@@ -34,7 +34,7 @@
 | Киллеры        | Запретная зона | Бойтесь ходячих мертвецов|
 
 ### Напоследок хочу вставить мое любимое фото с последней поездки по Санкт-Петербургу:
-![ ](https://lh3.googleusercontent.com/-huhxoEiUjGM/WmNoYhnp6iI/AAAAAAAABjc/KlLX14oYim8uKV9rPjMZX1xDjy3pglGyQCL0BGAs/w530-d-h682-n-rw/yV-_NAYVlUg.jpg)
+![Напоследок хочу вставить мое любимое фото с последней поездки по Санкт-Петербургу:](https://lh3.googleusercontent.com/-huhxoEiUjGM/WmNoYhnp6iI/AAAAAAAABjc/KlLX14oYim8uKV9rPjMZX1xDjy3pglGyQCL0BGAs/w530-d-h682-n-rw/yV-_NAYVlUg.jpg)
 
 
 
