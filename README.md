@@ -23,9 +23,9 @@
 
 > **"Fake it untill you make it"**
 ## Вы можете найти меня в социальных сетях :)
-[INSTGRAM](https://www.instagram.com/bluffingboy/)
+[instagram](https://www.instagram.com/bluffingboy/)
 
-[VK](https://vk.com/bluffingboy)
+[vk](https://vk.com/bluffingboy)
    
 
 
