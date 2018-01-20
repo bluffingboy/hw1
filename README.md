@@ -24,7 +24,6 @@
 > **"Fake it untill you make it"**
 ## Мои социальные сети :)
 [instagram](https://www.instagram.com/bluffingboy/)
-
 [vk](https://vk.com/bluffingboy)
 
 
